@@ -1,4 +1,4 @@
-#  
+#  easter tap simulator smart Scripts is the best easter tap simulator Script, featuring invisibility and unlimited stamina. Safe and powerful for all
 
 
 
